@@ -1,3 +1,3 @@
 # Beginners
 Beginner
-I'm noob in pubg.
+I'm the biggest noob in pubg.
