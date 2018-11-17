@@ -1,3 +1,3 @@
 # Beginners
 Beginner
-I'm pro in pubg.
+I'm noob in pubg.
